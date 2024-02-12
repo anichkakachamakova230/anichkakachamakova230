@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on SARA ELMI MEHANCHEVA 
 - 📫 How to reach me BY INSTAGRAM
 - 😄 Pronouns:SHE/HER
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: BORING LIFE
 
 <!---
 anichkakachamakova230/anichkakachamakova230 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
